@@ -11,14 +11,14 @@
   - Pl. Lidl 150 g Pilos Mini Mozzarella
   - Én fel szoktam kerekíteni 2-re, ha csak egy adagot csinálok
 - 100 ml tejszín
-### Kell még:
+### Kell még
 - Egy kevés olívaolaj
   - Csak a fokhagyma pirításához kell
 - 1-2 gerezd fokhagyma (vagy egy nagyobb, vagy két kisebb)
 - Só
 - Bors
 
-## Eszközök:
+## Eszközök
 - Nagy, mély serpenyő
   - Nekem pl. ilyenem van: https://www.ikea.com/hu/hu/p/ikea-365-serpenyo-rozsdamentes-50582736/
 - Keverő alkalmatosság
