@@ -1,5 +1,5 @@
 # Gnocchi Sorrentino
-## Bevlista (étvágy függvényében 2-3 főre elég):
+## Bevlista (étvágy függvényében 2-3 főre elég)
 - 500 ml paradicsomszósz (vagy darabolt paradicsomkonzerv a levével együtt)
 - 500 g gnocchi
 - 100-150 g koktélparadicsom
