@@ -2,7 +2,8 @@
 ## Bevlista (6 adag)
 - 800 g hámozott paradicsom konzerv (nettó)
 - 1 kg darált marha/disznó
-- 400-600 g vörös bab konzerv ()
+- 400-600 g vörös bab konzerv (töltőtömeg)
+- 300-400 g kukorica konzerv (töltőtömeg)
 - 1 nagyobb fej lila vagy vöröshagyma
 - 2 db kaliforniai paprika (egy zöld, egy piros vagy sárga, legyen színes)
 ### Kell még
@@ -50,7 +51,7 @@
 7. Fedő alatt forraljuk fel
 8. Ha forr, vegyük le róla a fedőt, 50-60 percet forraljuk közepes lángon, közben 5-10 percenként kavargajuk át
    - Magasabb lángon oda tud égni, inkább kavarjuk gyakrabban
-9. Ha nagyrész elforrt a leve (nem tudja már sehogy sem elfedni a húst), adjuk hozzá a kukoricát és a babot, esetleg sózzuk, majd 10-15 percig forraljuk
+9. Ha nagyrész elforrt a leve (nem tudja már sehogy sem elfedni a húst), adjuk hozzá a kukoricát és a babot, esetleg sózzuk, kavarjuk össze, majd 10-15 percig forraljuk
 10. Kész vagyunk!
     - Célszerű frissen fogyasztani, de ha maradna, nagyon jól mikrózható is
     - Ha gyorsan hűtőbe kerül, sokáig eláll (elvileg 4-5 napig, de akkor már óvatosan vele)
