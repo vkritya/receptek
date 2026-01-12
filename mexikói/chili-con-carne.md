@@ -53,5 +53,5 @@
    - Magasabb lángon oda tud égni, inkább kavarjuk gyakrabban
 9. Ha nagyrész elforrt a leve (nem tudja már sehogy sem elfedni a húst), adjuk hozzá a kukoricát és a babot, esetleg sózzuk, kavarjuk össze, majd 10-15 percig forraljuk
 10. Kész vagyunk!
-    - Célszerű frissen fogyasztani, de ha maradna, nagyon jól mikrózható is
-    - Ha gyorsan hűtőbe kerül, sokáig eláll (elvileg 4-5 napig, de akkor már óvatosan vele)
+    - Ha gyorsan hűtőbe kerül, sokáig eláll (4-5 napig gond nélkül fogyasztható)
+    - Jól mikrózható
