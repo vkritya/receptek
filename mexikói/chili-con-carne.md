@@ -4,7 +4,7 @@
 - 1 kg darált marha/disznó
 - 400-600 g vörös bab konzerv (töltőtömeg)
 - 300-400 g kukorica konzerv (töltőtömeg)
-- 1 nagyobb fej lila vagy vöröshagyma
+- 1 nagyobb fej lila- vagy vöröshagyma
 - 2 db kaliforniai paprika (egy zöld, egy piros vagy sárga, legyen színes)
 ### Kell még
 - Pár ek olívaolaj (vagy napraforgó is jó)
@@ -20,10 +20,10 @@
 - Vízforraló
 - 1 bögre (200-250 ml)
 - Keverő alkalmatosság
-  - Fakanál, műanyagkanál, lyukas, nem lyukas, mindegy
+  - Fakanál, műanyag kanál, lyukas, nem lyukas, mindegy
 - Kés, vágódeszka
   - Hagyma, paprika preparáláshoz
-- Fokhagyma nyomó
+- Fokhagymanyomó
   - Ha nincs, akkor lehet zúzni és finomra aprítani késsel is
 - 1-2 villa
   - Hasznos ha van
@@ -35,7 +35,7 @@
 ### Előkészületek
 1. Kockázzuk fel a paprikákat 1-1.5 centis darabokra
 2. Nyomjuk szét (vagy zúzzuk össze és aprítsuk fel) a fokhagymát
-3. Kockázzuk fel a lila vagy vöröshagymát (mondjuk fél centikre)
+3. Kockázzuk fel a lila- vagy vöröshagymát (mondjuk fél centikre)
 4. Szűrjük le a bab és a kukorica konzerveket
    - Ez egyébként bőven ráér, de előkészület
 5. A paradicsomkonzerveket bontsuk fel, öntsük egy tálba és nyomkodjuk szét a hámozott paradicsomokat egy villával
@@ -49,7 +49,7 @@
 5. Dobjuk be a fűszereket, keverjük el (római kömény, chili pehely, oregánó, bors ízlés szerint, némi só)
 6. Adjuk hozzá a paradicsomot és az alaplét
 7. Fedő alatt forraljuk fel
-8. Ha forr, vegyük le róla a fedőt, 50-60 percet forraljuk közepes lángon, közben 5-10 percenként kavargajuk át
+8. Ha forr, vegyük le róla a fedőt, 50-60 percet forraljuk közepes lángon, közben 5-10 percenként kavargassuk át
    - Magasabb lángon oda tud égni, inkább kavarjuk gyakrabban
 9. Ha nagyrész elforrt a leve (nem tudja már sehogy sem elfedni a húst), adjuk hozzá a kukoricát és a babot, esetleg sózzuk, kavarjuk össze, majd 10-15 percig forraljuk
 10. Kész vagyunk!
