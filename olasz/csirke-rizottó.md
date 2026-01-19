@@ -15,7 +15,7 @@ Ezzel a recepttel én nagyjából 6-8 teljes étkezést kitettem
 - 200 g ráma
 - 300 g parmezán
     - ha tálaláshoz is szeretnénk, akkor lehet több
-    - kb. bármilyen könnyen olvadó, erősebb ízű sajt jó, én gaudával csináltam
+    - kb. bármilyen könnyen olvadó, erősebb ízű sajt jó, gaudával tesztelve
 - 15 dkg füstölt sonka
 
 ### Fűszerek és egyéb
@@ -37,12 +37,18 @@ Ezzel a recepttel én nagyjából 6-8 teljes étkezést kitettem
 ## Elkészítés
 ### Alapléhez
 - Kis vöröshagymát megpirítunk egy kevés olajon
-- Belekeverjü a vegetát, petrezselymet
-- Érdemes az elején megcsinálni, hogy jól összefő
+- Felöntjük vízzel
+- Belekeverjük a vegetát, petrezselymet
+- Érdemes az elején megcsinálni, hogy jól összefőljön, mire használni kell
 
 ### A lényeg
-- Sóval-borssal fűszerezett, kockára vágott csirkét fehérre sütjük kevés olajon
+- Sóval-borssal fűszerezett, kockára vágott csirkét fehérre sütjük kevés olajon a nagy serpenyőben
 - Felvágott hagymát és fokhagymát beleszórjuk, kis sóval megkapatjuk
 - Beleszórjuk a rizst, kis olajon esetleg megpirítjuk
 - Felöntjük a borral
-- Szép lassan belekeverjük az alaplevet
+- Szép lassan belekeverjük az alaplevet (ezt érdemes tényleg sok lépésben megtenni)
+- Közben belereszeljük a sajtot és beleolvasztjuk a rámát
+- Végül belekeverjük a szalonnát (akár előtte kicsit megpirítva)
+
+### Tálalás
+- Ha maradt sajt, azt ráreszelve tálaljuk
